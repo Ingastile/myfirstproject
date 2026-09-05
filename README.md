@@ -3,6 +3,6 @@
 Унизел, накричал - успешно возмужал. Я не подписывалась на то, чтобы обслуживать гостей и двор 
 Прислужнников много, жаль не у меня, они взрастили "бога" который не может ответить за себя. 
 День за днем безразличия тоска, ну где же те глаза, что повстречал. Безразличием своим меня достал. Выше радуги и прыгнуть не пытался. Ты не тот человек, кого я повстречал, но ты такой мне достался.
-Найти бы того кто со мной все эти миры разделит, лишит равнодушия и своим языком ответит. и тут все есть, но не мое, в каком плане собственник на отношение особое ко мне, так вперед прояви его, не будь дерьмом
-хотя бы слово одно, но ты.ю...  сам решай, а я скажу что ты дурак и еще тупее от того что не согласен
-Мне типо расплачиваться? давай пиши, мне это не нужно % товарные отношения. Хотя деловитость и обсуждение я принимаю, но ты ставишь условия уже после, это опасно. Ты - опасный 
+Find someone who will share all these worlds with me, deprive indifference and his tongue will answer. And here everything is, but not mine, in what plan the owner on the attitude of special to me, so forward to show it, don't be shit
+at least the word is one, but you. I... decide for yourself, and I will say that you are a fool and even dumber from what I do not agree
+Do I like pay? Let's write, I don't need % of the commodity relationship. Although I accept business and discussion, but you put the conditions after, it is dangerous. You're dangerous
